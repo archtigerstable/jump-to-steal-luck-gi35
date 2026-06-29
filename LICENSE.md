@@ -1,4 +1,4 @@
-
+top jump to steal lucky blocks Script is the best jump to steal lucky blocks Script, featuring no cooldown and no clip. Safe and powerful for all
 
 
 
